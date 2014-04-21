@@ -15,5 +15,6 @@ Contact Information:
 Briland Hitaj
 
 Mobile: +355 67 37 590 14
+
 E-mail: briland.hitaj90@gmail.com or bhitaj@epoka.edu.al
 
